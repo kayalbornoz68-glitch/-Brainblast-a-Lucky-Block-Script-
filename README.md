@@ -1,0 +1,1 @@
+# -Brainblast-a-Lucky-Block-Script-
